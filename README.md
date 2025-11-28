@@ -1,1 +1,1 @@
-# Machine-learning-aided-optimization-of-polyethylene-pyrolysis
+# For details, please read and cite our article: To update soon
