@@ -1,1 +1,1 @@
-# For details, please read and cite our article: To update soon
+# For details, please read our article: To be updated soon
